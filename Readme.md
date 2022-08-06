@@ -1,1 +1,1 @@
-Well..This came up as result of the fact that nkiri.com was offline which made me sad because i won't be able to continue with "Alchemy of Souls"
+Well..This came up as result of the fact that nkiri.com was offline which made me sad because i won't be able to continue with "Alchemy of Souls" Its not responsive yet tho. I'm going to work on it soon 
